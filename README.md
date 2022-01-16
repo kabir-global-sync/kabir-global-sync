@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kabir-global-sync
+- 👋 Hi, I’m Fiddo_jam
 - 👀 I’m interested in things that interest me
 - 🌱 I’m currently learning to iterate through everything
 - 📫 How to reach me : through email
