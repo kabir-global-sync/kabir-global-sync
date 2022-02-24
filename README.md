@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Fiddo_jam
+- 👋 Hi, I’m Altamash Kabir
 - 👀 I’m interested in things that interest me
 - 🌱 I’m currently learning to iterate through everything
 - 📫 How to reach me : through email
